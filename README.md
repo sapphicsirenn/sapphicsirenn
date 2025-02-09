@@ -1,7 +1,7 @@
-- 🌱 Sup, I’m madisonn
-- 🌱 I'm 15 (aquarius) 
-- 🌱 I'm also pansexual and agender
-- 🌱 I love music anything game and code based and plants
-- 🌱 I’m currently learning to make language patches for older games lol 
-- 🌱 And ngl i'm not very interesting as a person 👍
+- ♫ hi im madison!
+- ♫ im 18 and im from scotland
+- ♫ im a massive lezzer xx
+- ♫ i love music and games (especially older/obscure games)
+- ♫ i want to learn how to make language patches and stuff but im a full time student and have literally zero time
+- ♫ leaving this here for when i have free time.....
 
